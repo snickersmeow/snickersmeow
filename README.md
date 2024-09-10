@@ -1,5 +1,5 @@
 "Hello!! ^¬^ 
-I'm @snickersmeow 
+I'm snickersmeow. 
 Currently, i'm a student at:
 VOŠ, SPŠ & SOŠ Varnsdorf (IT).
 Other than making simple programs, i also enjoy drawing, animating, playing games and crossdressing. I'm bisexual, and a femboy."
