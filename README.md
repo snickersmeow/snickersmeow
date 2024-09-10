@@ -1,7 +1,7 @@
 >Hello!! ^¬^ 
->I'm snickersmeow. 
+>I'm <mark>snickersmeow</mark>.
 >Currently, i'm a student at:
-><mark>VOŠ, SPŠ & SOŠ Varnsdorf (IT).</mark>
+>VOŠ, SPŠ & SOŠ Varnsdorf (IT).
 >Other than making simple programs, i also enjoy drawing, animating, playing games and crossdressing. I'm bisexual, and a femboy.
 
 >Games i like: Ready Or Not, War Thunder, ETS2, COD:MW3, Siege, Watch Dogs (1 and 2), GTA5 (FiveM), Roblox.
