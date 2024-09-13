@@ -4,7 +4,7 @@
 >VOŠ, SPŠ & SOŠ Varnsdorf (IT).
 >Other than making simple programs, i also enjoy drawing, animating, playing games and crossdressing. I'm bisexual, and a femboy. <3
 
->Games i like: Ready Or Not, War Thunder, ETS2, COD:MW3, Siege, Watch Dogs (1 and 2), GTA5 (FiveM), Roblox.
+>Games i like: Ready Or Not, War Thunder, ETS2, COD:MW3, Siege, Watch Dogs (1 and 2), GTA5 (FiveM), CS2, Roblox.
 
 >Main languages: C# and Python
 
